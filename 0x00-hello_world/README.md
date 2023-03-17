@@ -1,0 +1,1 @@
+Preprocessor_Compiler_Assembler_Name_Hello, puts_Hello, printf_Size is not grandeur, and territory does not make a nation_Intel_UNIX is basically a simple operating system, but you have to be a genius to understand the simplicity_
